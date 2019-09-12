@@ -1,2 +1,0 @@
-# DayDayStudy
-my daily study
